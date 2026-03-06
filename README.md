@@ -1,2 +1,2 @@
-# Invitaci-n-boda-platino-
+# Invitacion-boda-platino-
 Invitación digital web 
